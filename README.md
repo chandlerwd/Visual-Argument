@@ -1,1 +1,1 @@
-# Visual-Argument
+My visual argument depicts the 4 different types of bullying and aims to inform the viewer of them as well as serve as an anti-bullying visual aid. I wanted to use a group of photos from the same series in order to make the project as cohesive as possible.
